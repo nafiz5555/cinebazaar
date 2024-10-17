@@ -1,5 +1,5 @@
 # Don't Remove Credit @CineDrama
-# Subscribe YouTube Channel For Amazing Bot @CineDrama
+# Amazing Bot @CineDrama
 # Ask Doubt on telegram @CineDrama
 
 
